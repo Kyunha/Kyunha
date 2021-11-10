@@ -1,4 +1,7 @@
-- 👋 Hi, I’m @Kyunha
-- 👀 I’m interested in drugs
 
+
+
+“One man’s “magic” is another man’s engineering. “Supernatural” is a null word.”	
+
+― Robert Heinlein
 
